@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Chikorita-Lover!
 - 👀 I’m interested in creating exciting and appealing gaming experiences!
-- 🌱 I’m currently learning the ropes on modding *Minecraft: Java Edition*.
+- 🌱 I’m currently creating unique content for *Minecraft: Java Edition*.
 - 📫 If you want to reach out to me, [send me a DM over on Twitter](https://twitter.com/ChikoritaL)!
